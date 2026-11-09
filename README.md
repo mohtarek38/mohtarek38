@@ -40,7 +40,7 @@ My background is in Electromechanical Engineering and my passion for software de
 
 ### 🌐 Connect
 
-[GitHub](https://github.com/mohtarek38) · [LinkedIn](https://linkedin.com/in/mohtarek38) · [Email](mailto:mohtarek38@outlook.com)
+[LinkedIn](https://linkedin.com/in/mohtarek38) · [Email](mailto:mohtarek38@outlook.com)
 
 ---
 
